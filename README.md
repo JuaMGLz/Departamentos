@@ -1,0 +1,1 @@
+Este es un proyecto de González Espinosa Juan Manuel. Alumno de la Universidad Autonoma del Estado de México UAEM Valle de Chalco Solidaridad. De la licenciatura en ingeniería en computación. Para la realización de mis prácticas integraticas
